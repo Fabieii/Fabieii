@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Fabieii
 - 👀 I’m interested in ...
-- 🌱 I’m currently learning 中文
+- 🌱 I’m currently learning kys
 - 💞️ I’m looking to collaborate on ... NO nonono 
 - 📫 How to reach me ... do not no no no no no no no no no no no no no no no no non o
 - 😄 Pronouns: they
